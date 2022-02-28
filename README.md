@@ -1,4 +1,2 @@
-![Opera Snapshot_2022-02-24_201826_github com](https://user-images.githubusercontent.com/89798181/155652951-b5f9e2ca-eadb-4e63-91dc-2795e0a4d438.png)
+![walter](https://user-images.githubusercontent.com/89798181/156055072-8bd28970-fa1e-4ca7-a0c6-2bf812498657.png)
 
-
-## Owner Of Waters Technology, Ltd.
